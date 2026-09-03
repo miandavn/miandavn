@@ -11,7 +11,7 @@ I am a tech enthusiast and creative problem solver who enjoys exploring new ways
 ## 👩‍💼 About Me
 
 * Based in Düsseldorf, Germany
-* More than 12 years of Talent Acquisition experience across international markets
+* More than 14 years of Talent Acquisition experience across international markets
 * Strong expertise in end-to-end recruitment across various levels and business areas
 * International experience supporting teams across 30+ countries
 * Experienced in recruitment process improvement and global tool implementation
