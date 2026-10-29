@@ -10,7 +10,7 @@ I am a tech enthusiast and creative problem solver who enjoys exploring new ways
 
 ## 👩‍💼 About Me
 
-* Based in Düsseldorf, Germany
+* Based in Germany
 * More than 14 years of Talent Acquisition experience across international markets
 * Strong expertise in end-to-end recruitment across various levels and business areas
 * International experience supporting teams across 30+ countries
@@ -133,4 +133,4 @@ I am particularly interested in opportunities involving:
 ## 📫 Connect With Me
 
 * **LinkedIn:** https://www.linkedin.com/in/miandavn
-* **Location:** Düsseldorf, Germany
+* **Location:** Germany
